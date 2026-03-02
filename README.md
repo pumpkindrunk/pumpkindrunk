@@ -11,7 +11,7 @@
 <p align="center">${\textsf{\color{#ef998c} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ! | ԃɳι. :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ  }}$
 
 ***
-<img width="800" height="700" alt="image" src="https://github.com/user-attachments/assets/de7a0af7-981f-4e7a-b676-153bafba3f44" />
+   <img width="534" height="467" alt="image" src="https://github.com/user-attachments/assets/6fd07a49-74b2-483c-af27-5afda05b83b8" />
 <p align="center">${\textsf{\color{#e6c3af} ι ʅσʋҽ ɱყ ɾαιɳιҽ!! (ρʅʂ ɾαιɳႦσɯ ϝιƈƙιɳʂ + ριɳƙαɱҽɳα ԃσυႦʅҽʂ ԃɳι!!) :3 }}$
    
 ***
