@@ -1,18 +1,17 @@
-<img width="736" height="510" alt="image" src="https://github.com/user-attachments/assets/2f1f36c5-59a3-4582-899c-287d0c21efd5" />
+![image description](https://wimg.rule34.xxx//samples/3082/sample_01b9ee220abd7a4313bd1ae4b4f7b492.jpg?16802897)
 
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=ef998c&center=true&width=435&lines=%E2%80%98The+Red+Means+I+Love+U!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#474965}  ριɳƙαɱҽɳα | ριɳƙιҽ ριҽ | ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ ƙιɳɳҽɾ! ♡ }}$
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=ef998c&center=true&width=435&lines=%E2%80%98They+call+me+Senpai!%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#474965} ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ ƙιɳɳҽɾ | σɯɱ ;; ɱιƙҽ! ♡ }}$
 
 <p align="center">${\textsf{\color{#816d7d} ʂԋҽ ' ԋιɱ 'ρσɳყ ' ƈυρƈαƙҽʂ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
 <p align="center">${\textsf{\color{#ef818b} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
 <p align="center">${\textsf{\color{#ef998c} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ! | ԃɳι. :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ  }}$
 
 ***
-   <img width="534" height="467" alt="image" src="https://github.com/user-attachments/assets/6fd07a49-74b2-483c-af27-5afda05b83b8" />
-<p align="center">${\textsf{\color{#e6c3af} ι ʅσʋҽ ɱყ ɾαιɳιҽ!! (ρʅʂ ɾαιɳႦσɯ ϝιƈƙιɳʂ + ριɳƙαɱҽɳα ԃσυႦʅҽʂ ԃɳι!!) :3 }}$
+![image description](https://i.pinimg.com/1200x/de/0f/3c/de0f3c95764e79b5ca333c9a0974ed02.jpg) 
    
 ***
 <p align="center">${\textsf{\color{#474965} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
