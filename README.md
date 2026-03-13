@@ -3,7 +3,7 @@
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=ef998c&center=true&width=435&lines=%E2%80%98Hecall+me+Senpai!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=ef998c&center=true&width=435&lines=%E2%80%98He+calls+me+Senpai!%E2%80%99"/> </p>
 <p align="center">${\textsf{\color{#474965} ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ ƙιɳɳҽɾ | σɯɱ ;; ɱιƙҽ! ♡ }}$
 
 <p align="center">${\textsf{\color{#816d7d} ʂԋҽ ' ԋιɱ 'ρσɳყ ' ƈυρƈαƙҽʂ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
