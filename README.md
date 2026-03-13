@@ -18,7 +18,6 @@
 <p align="center">${\textsf{\color{#474965} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
    </a>
 </p>
-<img width="1094" height="224" alt="image" src="https://github.com/user-attachments/assets/33c650ff-175e-488f-ab4a-903c5264b6c2" />
 <img width="1200" height="257" alt="image" src="https://github.com/user-attachments/assets/0773fd87-b28f-408a-b504-24efb25dc614" />
 <img width="1200" height="248" alt="image" src="https://github.com/user-attachments/assets/a822be61-fe65-4b8a-8fb2-f861763fbcd4" />
 <img width="1200" height="243" alt="image" src="https://github.com/user-attachments/assets/ce26f1f4-7e25-403b-bf94-366162b79890" />
