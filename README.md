@@ -12,6 +12,9 @@
 <p align="center">${\textsf{\color{#474965} ԃɳι :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
    
 ***
+![image description](https://i.pinimg.com/1200x/de/0f/3c/de0f3c95764e79b5ca333c9a0974ed02.jpg)
+***
+
 <p align="center">${\textsf{\color{#474965} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
    </a>
 </p>
