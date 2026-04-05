@@ -1,21 +1,19 @@
-![image description](https://wimg.rule34.xxx//samples/3082/sample_01b9ee220abd7a4313bd1ae4b4f7b492.jpg?16802897)
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/33c8de13-5a30-4125-ac9d-ebad6541c0e6" />
 
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=FCEEF1&center=true&width=435&lines=%E2%80%98I+Love+You+Like+An+Alcoholic!%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#d5afd5} ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ ƙιɳɳҽɾ | σɯɱ ;; ɱιƙҽ! ♡ }}$
 
-
-
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=ef998c&center=true&width=435&lines=%E2%80%98He+calls+me+Senpai!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#474965} ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ ƙιɳɳҽɾ | σɯɱ ;; ɱιƙҽ! ♡ }}$
-
-<p align="center">${\textsf{\color{#816d7d} ʂԋҽ ' ԋιɱ ' ƙιƚƚҽɳ ' ραɯʂ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
-<p align="center">${\textsf{\color{#ef818b} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
-<p align="center">${\textsf{\color{#ef998c} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ!}}$
-<p align="center">${\textsf{\color{#474965} ԃɳι :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
+<p align="center">${\textsf{\color{#8a98c0} ʂԋҽ ' ԋιɱ ' ƙιƚƚҽɳ ' ραɯʂ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
+<p align="center">${\textsf{\color{#ebbedb} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
+<p align="center">${\textsf{\color{#b1a6d3} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ!}}$
+<p align="center">${\textsf{\color{#e7b8d9} ԃɳι :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
    
 ***
-![image description](https://i.pinimg.com/1200x/de/0f/3c/de0f3c95764e79b5ca333c9a0974ed02.jpg)
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/6503f671-002d-4267-abed-887122983b11" />
+
 ***
 
-<p align="center">${\textsf{\color{#474965} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
+<p align="center">${\textsf{\color{#f5dae4} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
    </a>
 </p>
 <img width="1200" height="257" alt="image" src="https://github.com/user-attachments/assets/0773fd87-b28f-408a-b504-24efb25dc614" />
