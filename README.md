@@ -1,15 +1,17 @@
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/33c8de13-5a30-4125-ac9d-ebad6541c0e6" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/93add9d6-74a9-47f6-bf49-8812e9478b4b" />
+
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=FCEEF1&center=true&width=435&lines=%E2%80%98I+Love+You+Like+An+Alcoholic!%E2%80%99"/> </p>
 <p align="center">${\textsf{\color{#FCEEF1} Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ | ɯιʅʅ!  ♡ }}$
-<p align="center">${\textsf{\color{#d5afd5} ѕ¢υ!ѕ¢нℓαтт | ¢!ѕ¢нℓαтт | q!ѕ¢нℓαтт кιηηєя!  ♡ }}$
-<p align="center">${\textsf{\color{#8a98c0} ʂԋҽ ' ԋιɱ 'яαм | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
+<p align="center">${\textsf{\color{#d5afd5} ϙ!ƙαƚιҽ-Ⴆ кιηηєя!  ♡ }}$
+<p align="center">${\textsf{\color{#8a98c0} ʂԋҽ ' ԋιɱ ' ρυρ '  υɳιƈσɾɳ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
 <p align="center">${\textsf{\color{#ebbedb} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | ρυмρкιη ∂υσ/Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
 <p align="center">${\textsf{\color{#b1a6d3} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | ∂smp/qѕмρ ƒαηѕ | ρυмρкιη-∂υσ/Ⴆყʅҽɾ ϝαɳʂ!}}$
 <p align="center">${\textsf{\color{#e7b8d9} ԃɳι :: ∂яєαм ѕυρρσятєяѕ, ωѕѕ, ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
    
 ***
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/6503f671-002d-4267-abed-887122983b11" />
+
+<img width="597" height="680" alt="image" src="https://github.com/user-attachments/assets/1a123e89-ccef-4d35-a8bb-43381f97ab1a" />
 
 ***
 
