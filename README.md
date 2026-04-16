@@ -1,7 +1,7 @@
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/93add9d6-74a9-47f6-bf49-8812e9478b4b" />
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=FCEEF1&center=true&width=435&lines=%E2%80%98I+Love+You+Like+An+Alcoholic!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=FCEEF1&center=true&width=435&lines=%E2%80%98Hot+n'+Cold!!%E2%80%99"/> </p>
 <p align="center">${\textsf{\color{#FCEEF1} Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ | ɯιʅʅ!  ♡ }}$
 <p align="center">${\textsf{\color{#d5afd5} ϙ!ƙαƚιҽ-Ⴆ кιηηєя!  ♡ }}$
 <p align="center">${\textsf{\color{#8a98c0} ʂԋҽ ' ԋιɱ ' ρυρ '  υɳιƈσɾɳ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
