@@ -1,13 +1,13 @@
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/93add9d6-74a9-47f6-bf49-8812e9478b4b" />
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=FCEEF1&center=true&width=435&lines=%E2%80%98Hot+n'+Cold!!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#FCEEF1} Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ | ɯιʅʅ!  ♡ }}$
-<p align="center">${\textsf{\color{#d5afd5} ϙ!ƙαƚιҽ-Ⴆ кιηηєя!  ♡ }}$
-<p align="center">${\textsf{\color{#8a98c0} ʂԋҽ ' ԋιɱ ' ρυρ '  υɳιƈσɾɳ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
-<p align="center">${\textsf{\color{#ebbedb} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | ρυмρкιη ∂υσ/Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
-<p align="center">${\textsf{\color{#b1a6d3} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | ∂smp/qѕмρ ƒαηѕ | ρυмρкιη-∂υσ/Ⴆყʅҽɾ ϝαɳʂ!}}$
-<p align="center">${\textsf{\color{#e7b8d9} ԃɳι :: ∂яєαм ѕυρρσятєяѕ, ωѕѕ, ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f98f86&center=true&width=435&lines=%E2%80%98Hot+n'+Cold!!%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#f6ac8a} Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ | ɯιʅʅ!  ♡ }}$
+<p align="center">${\textsf{\color{#9ffee8} ϙ!ƙαƚιҽ-Ⴆ кιηηєя!  ♡ }}$
+<p align="center">${\textsf{\color{#fa7979} ʂԋҽ ' ԋιɱ ' ρυρ '  υɳιƈσɾɳ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
+<p align="center">${\textsf{\color{#f8ac86} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | ρυмρкιη ∂υσ/Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
+<p align="center">${\textsf{\color{#f6bfa3} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | ∂smp/qѕмρ ƒαηѕ | ρυмρкιη-∂υσ/Ⴆყʅҽɾ ϝαɳʂ!}}$
+<p align="center">${\textsf{\color{#e8f2f9} ԃɳι :: ∂яєαм ѕυρρσятєяѕ, ωѕѕ, ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
    
 ***
 
@@ -15,7 +15,7 @@
 
 ***
 
-<p align="center">${\textsf{\color{#f5dae4} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
+<p align="center">${\textsf{\color{#d26b64} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
    </a>
 </p>
 <img width="1200" height="257" alt="image" src="https://github.com/user-attachments/assets/0773fd87-b28f-408a-b504-24efb25dc614" />
