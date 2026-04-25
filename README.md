@@ -3,7 +3,7 @@
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f98f86&center=true&width=435&lines=%E2%80%98Hot+n'+Cold!!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f98f86&center=true&width=435&lines=%E2%80%98My+Moon,+My+Man!!%E2%80%99"/> </p>
 <p align="center">${\textsf{\color{#f6ac8a}  ɯιʅʅ | Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ!  ♡ }}$
 <p align="center">${\textsf{\color{#9ffee8} ιʅყα ɾσȥαɳσʋ ƙιɳɳҽɾ!!  ♡ }}$
 <p align="center">${\textsf{\color{#fa7979} ʂԋҽ ' ԋιɱ ' ρυρ| Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
