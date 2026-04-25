@@ -3,13 +3,13 @@
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f98f86&center=true&width=435&lines=%E2%80%98My+Moon,+My+Man!!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#f6ac8a}  ɯιʅʅ | Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ!  ♡ }}$
-<p align="center">${\textsf{\color{#9ffee8} ιʅყα ɾσȥαɳσʋ ƙιɳɳҽɾ!!  ♡ }}$
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=fb6989&center=true&width=435&lines=%E2%80%98My+Moon,+My+Man!!%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#f485d1}  ɯιʅʅ | Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ!  ♡ }}$
+<p align="center">${\textsf{\color{#fed59f} ιʅყα ɾσȥαɳσʋ ƙιɳɳҽɾ!!  ♡ }}$
 <p align="center">${\textsf{\color{#fa7979} ʂԋҽ ' ԋιɱ ' ρυρ| Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
-<p align="center">${\textsf{\color{#f8ac86} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | ρυмρкιη ∂υσ/ƚσxιƈ-ԃυσ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
-<p align="center">${\textsf{\color{#f6bfa3} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | ∂smp/qѕмρ ƒαηѕ | ρυмρкιη-∂υσ/Ⴆყʅҽɾ ϝαɳʂ!}}$
-<p align="center">${\textsf{\color{#e8f2f9} ԃɳι :: ∂яєαм ѕυρρσятєяѕ, ωѕѕ, ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
+<p align="center">${\textsf{\color{#fc8796} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | ρυмρкιη ∂υσ/ƚσxιƈ-ԃυσ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
+<p align="center">${\textsf{\color{#86599c} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | ∂smp/qѕмρ ƒαηѕ | ρυмρкιη-∂υσ/Ⴆყʅҽɾ ϝαɳʂ!}}$
+<p align="center">${\textsf{\color{#6b3d58} ԃɳι :: ∂яєαм ѕυρρσятєяѕ, ωѕѕ, ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
    
 ***
 
@@ -18,7 +18,7 @@
 
 ***
 
-<p align="center">${\textsf{\color{#d26b64} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
+<p align="center">${\textsf{\color{#be8691} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
    </a>
 </p>
 <img width="1200" height="257" alt="image" src="https://github.com/user-attachments/assets/0773fd87-b28f-408a-b504-24efb25dc614" />
