@@ -1,10 +1,12 @@
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/93add9d6-74a9-47f6-bf49-8812e9478b4b" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3c771b99-aa15-4d15-97a3-355b890302b0" />
+
+
 
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f98f86&center=true&width=435&lines=%E2%80%98Hot+n'+Cold!!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#f6ac8a} Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ | ɯιʅʅ!  ♡ }}$
-<p align="center">${\textsf{\color{#9ffee8} ϙ!ƙαƚιҽ-Ⴆ кιηηєя!  ♡ }}$
-<p align="center">${\textsf{\color{#fa7979} ʂԋҽ ' ԋιɱ ' ρυρ '  υɳιƈσɾɳ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
+<p align="center">${\textsf{\color{#f6ac8a}  ɯιʅʅ | Ⴆʅҽρ | ҽʅʅισƚ | Ⴆαʅ!  ♡ }}$
+<p align="center">${\textsf{\color{#9ffee8} ιʅყα ɾσȥαɳσʋ ƙιɳɳҽɾ!!  ♡ }}$
+<p align="center">${\textsf{\color{#fa7979} ʂԋҽ ' ԋιɱ ' ρυρ| Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
 <p align="center">${\textsf{\color{#f8ac86} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | ρυмρкιη ∂υσ/ƚσxιƈ-ԃυσ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
 <p align="center">${\textsf{\color{#f6bfa3} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | ∂smp/qѕмρ ƒαηѕ | ρυмρкιη-∂υσ/Ⴆყʅҽɾ ϝαɳʂ!}}$
 <p align="center">${\textsf{\color{#e8f2f9} ԃɳι :: ∂яєαм ѕυρρσятєяѕ, ωѕѕ, ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ }}$ 
