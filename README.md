@@ -30,5 +30,5 @@
      
    parasocial fans : doubles.　 　⟡
 
-　　　　　( ᴗ ̫ ᴗ )　　ty　　⋌　　bai!!
+　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!!
 　﹒　
