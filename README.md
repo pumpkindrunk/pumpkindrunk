@@ -10,12 +10,13 @@
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=7c4878&center=true&width=435&lines=%E2%80%98My+Moon+My+Man%E2%80%99"/> </p>
 
  𓏲⠀ ：ྀི   mimi   '  miles ⠀ ̣̣̣ ͜𓏫
- ⠀⠀⠀  ۪    𓏼 ͜͜✚      ♬   .     he╱she⠀! ⠀⠀⠀⠀.
+ ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
 
  ⠀⠀⠀⠀⠀⠀⠀：my husband/shane ; hollanderzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
 
 
-　　　　　 ⤷ 　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
+　　　　
+   𓏵  　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
    
    pumpkin duo stans :  byler stans : hollanov stans : 
    
@@ -30,5 +31,5 @@
      
    parasocial fans : doubles.　 　⟡
 
-　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!!
+　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!! 𐔌
 　﹒　
