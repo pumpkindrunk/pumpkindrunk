@@ -13,7 +13,7 @@
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
 
  ⠀⠀⠀⠀⠀⠀⠀：my husband/shane ; hollanderzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
-
+      ˚₊‧꒰ა my rose ; puptrickz ໒꒱ ‧₊˚
 
 　　　　
    𓏵  　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
